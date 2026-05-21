@@ -1,1 +1,1 @@
-# TIPE---Dispositif-d-entra-nement-visuel-pour-les-sportifs
+# TIPE - Dispositif d'entraînement visuel pour les sportifs
